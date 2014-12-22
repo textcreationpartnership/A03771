@@ -37,7 +37,6 @@ This keyboarded and encoded edition of the
 
 #####Front#####
 
-Examen de ingenios. THE EXAMINATION of mens Wits. In whicch, by discouering the varietie of natures
 1. TO THE RIGHT WORSHIPFVL SIR FRANCIS GODOLPHIN KNIGHT, ONE OF THE DEPVTIE LIEVTENANTS OF CORNWAILE.
 
 1. TO THE MAIESTIE of Don Philip, our Soueraigne.
